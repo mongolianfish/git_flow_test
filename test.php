@@ -1,3 +1,3 @@
-xbxbx
+xb2xbx
 bbb
 ccc
